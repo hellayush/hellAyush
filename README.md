@@ -1,5 +1,7 @@
 # 💫 Hi 👋, I'm Ayush Singh
 A passionate student pursuing B.tech - > Galgotias University (2022-2026)
+
+
 🚀 Passionate Developer | Java & Web Technologies Enthusiast | Problem-Solver
 
 Email Me 👉 ✉️ **ayushofficial@gmail.com** For Collaboration/Project or Anything Else. 😊😊
